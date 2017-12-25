@@ -1,7 +1,7 @@
 # WeChat_Official_Accounts
-First of all!!
+First of all !!!!!!!!
 
-    it is used for preservation rather than for other purposes。
+    It is used for preservation rather than for other purposes。
     
 Then if you want to use it please read as follows:
 
